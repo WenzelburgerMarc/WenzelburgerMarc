@@ -1,5 +1,5 @@
 # 💫 About Me:
-22 | Student @ HS Schmalkalden
+24 | Student @ HS Schmalkalden
 
 
 ## 🌐 Socials:
